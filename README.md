@@ -1,2 +1,0 @@
-# TesNovel
-Kecil-kecilan
